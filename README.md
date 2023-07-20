@@ -1,6 +1,9 @@
-# zolars1966.github.io
+# Lé Portfoliå
 ## Main Page
 In here you can see all (mostly) of my projects :3
+
+** [YouTube](https://www.youtube.com/channel/UCuuiXfWpOvgYKuID54kbzvQ)
+** [VKontakte](https://vk.com/the.zolars)
 
 ## My projects
 
